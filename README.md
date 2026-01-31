@@ -25,5 +25,5 @@ I’m open to learning opportunities, collaborations, and projects related to:
 - Innovative digital solutions  
 
 ### 📫 Connect With Me
-Feel free to connect with me:
+Feel free to connect with me: https://www.linkedin.com/in/muhammad-umair-raza-8a0b1235a/
 
